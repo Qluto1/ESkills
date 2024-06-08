@@ -1,8 +1,8 @@
 # ESkills
-your phone kills
+your phone or tablet kills
 # real kill?
-It may or may not really kill you. 
+You will need a working phone or tablet. 
 # logs
-nope logs
+no logs
 ### by
 3u9dikdevs_
