@@ -1,9 +1,8 @@
-# ESkills(PS TEST)
-take Crash. and power off!
-# real kill?
-You will need a working phone or tablet. 
+# ESkills
+oh my phonnnneeeee!!!!!
+# how works?
+clock. and...
 # logs
-come back!
+No.
 ### by
-3u9dikdevs_ (old name)
-casnofiydev
+2025 Qluto
